@@ -1,7 +1,7 @@
 # Dark-Flowering
 Practice for NFA -MS1 Dark Flowering A Guided Sound Escape designed to take us deep into the darkest, hidden, caverns of our subconscious,
-where we may pull out weeds and plant fruitful seeds…  Together we will terraform our cosmicbiome, heal, rest, restore and r
-ejuvenate when we need a time out~ 
+where we may pull out weeds and plant fruitful seeds…  Together we will terraform our cosmicbiome, heal, rest, restore and 
+rejuvenate when we need a time out~ 
 .......
 
 
