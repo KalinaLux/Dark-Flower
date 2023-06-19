@@ -5,31 +5,31 @@ rejuvenate when we need a time out~
 .......
 
 
-~Welcome to Dark Flower~
+Featuring 33 HAND DESIGNED NFA’s done by Kalina Lux
+(No AI was used nor generative programs)
+At the intersection of technology, art, and profound self-advancement, the Dark Flower NFA project guides you through relaxing visualizations to tap into the power of your sleep and unconscious mind, unlocking your superhuman potential.
+Put your subconscious to work and wake up invigorated with creative ideas and solutions, be it for coding dilemmas or creative challenges.
+Each Rejuvenation Pod is meticulously designed to leverage specific brain wave states during sleep, providing access to your subconscious mind. This facilitates deep deprogramming of limiting beliefs and habits and their replacement with empowering ones.
+Embark on your transformative journey with Dark Flower, where sleep becomes a conduit for rapid personal growth and self-advancement. #HackYourDreams
 
-A Guided Sound Escape brought to you only in the DeroSphere….
+This innovative NFA project on DERO seamlessly intertwines hand-crafted digital art with guided meditative journeys, designed to harness the potential of your subconscious mind during sleep.
 
+ 
 
-Im your guide, Kalina Lux, and Ill be taking you on a restful journey alongside my flower companions starring some of the worlds most poisonous and 
-dangerous flowers, and some sweet light hearted flowers as well.  
+Each Rejuvenation Pod is a unique audio-visual experience, leveraging specific brainwave states to navigate complex problems while you sleep and creatively solve them. These pods also facilitate the release of stored emotions and energy, shifting your mindset from struggle to ease, abundance, and creativity.
 
-These journeys will take us deep into the darkest, hidden, caverns of our subconscious, where we may pull out weeds and plant fruitful seeds…
+ 
 
-Together we will terraform our cosmicbiome, heal, rest, restore and rejuvenate when we need a time out~
+The collection is dynamic and uncapped, with new batches of images and audio content consistently released, ensuring a fresh and engaging journey each time.
 
-In this intro journey, we will be working with Brugmansia~ the most poisonous flower in the world.  
-Her medicine is potent, pure spell binding light, to purify and cast out all unwanted implantations and machinations of the deep unconscious.  
-Her gift is electrifying white light, illumination all shadows.  
+ 
 
-This escape is designed to give you an introduction into Dark Flowering.  So take this moment to build yourself a sacred space, 
-where you wont be disturbed for the next hour or so.  Dim the lights, or get a blindfold… red and purple lights work best, avoiding any blue light.  
-Next you may want to light a candle, some incense or some sage… or prepare yourself a luxurious cup of mugwort or lavender tea to enhance your visuals.  
-Get a cozy spot in a chair, hammock, sitting in lotus position or curled up in bed… allow this space and time to be as nurturing as possible just for you… 
+Dark Flower is more than an NFA project. It’s a tool for personal growth, problem-solving, and deep relaxation.
 
-You’ve been working so hard, and just as one cannot always be inhaling all the time, one cannot be working all the time~ occasionally, 
-we must allow ourselves to exhale in… But it is in this exhale that our most creative solutions spring forth from the cosmic void within.  
+ 
 
-Without further pause, let us embark on our sacred rite…. 
+Unleash the power of your subconscious with Dark Flower: Rejuvenation Pods for Deep Relaxation, and embark on a journey towards self-discovery and personal development.
 
+https://www.dark-flower.org 
 
 ![image](https://user-images.githubusercontent.com/106274284/180627527-07f0c8bc-6ad4-4d0a-80c2-07a824d36811.png)
